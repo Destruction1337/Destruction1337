@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @Destruction1337
-- 
+
 An Anti-RedFemer.
 Wish Fight Together.
 
